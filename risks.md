@@ -1,1 +1,1 @@
-![](Ganta.jpg)
+![](Ganta1.jpg)
